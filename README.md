@@ -1,1 +1,1 @@
-# Ss-beauty-sal
+# Ss-beauty-salon
